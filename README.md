@@ -36,8 +36,174 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Epictetus his manuall. And Cebes his table. Out of the Greeke originall, by Io: HealeyManual. Englis
+
 #####Body#####
+
+1. To a true sauorer of forward spirits, Maister Iohn Florio.
+
+1. The life of EPICTETVS.
+
+1. EPICTETVS his Manuall.
+
+    _ CHAPTER. 1.
+
+    _ CHAP. 2.
+
+    _ CHAP. 3.
+
+    _ CHAP. 4.
+
+    _ CHAP. 5.
+
+    _ CHAP. 6.
+
+    _ CHAP. 7.
+
+    _ CHAP. 8.
+
+    _ CHAP. 9.
+
+    _ CHAP. 10.
+
+    _ CHAP. 11.
+
+    _ CHAP. 12.
+
+    _ CHAP. 13.
+
+    _ CHAP 14.
+
+    _ CHAP. 15.
+
+    _ CHAP. 16.
+
+    _ CHAP. 17.
+
+    _ CHAP. 18.
+
+    _ CHAP. 19.
+
+    _ CHAP. 20.
+
+    _ CHAP. 21.
+
+    _ CHAP. 22.
+
+    _ CHAP. 23.
+
+    _ CHAP. 24.
+
+    _ CHAP. 25.
+
+    _ CHAP. 26.
+
+    _ CHAP. 27.
+
+    _ CHAP. 28.
+
+    _ CHAP. 29.
+
+    _ CAHP. 30.
+
+    _ CHAP. 31.
+
+    _ CHAP. 32.
+
+    _ CHAP. 33.
+
+    _ CHAP. 34.
+
+    _ CHAP. 35.
+
+    _ CHAP. 36.
+
+    _ CHAP. 37.
+
+    _ CHAP. 38.
+
+    _ CHAP. 39.
+
+    _ CHAP. 40.
+
+    _ CHAP. 41.
+
+    _ CHAP. 42.
+
+    _ CHAP. 43.
+
+    _ CHAP. 44.
+
+    _ CAHP. 45.
+
+    _ CHAP. 46.
+
+    _ CHAP. 47.
+
+    _ CHAP. 48.
+
+    _ CHAP. 49.
+
+    _ CHAP. 50.
+
+    _ CHAP. 51.
+
+    _ CHAP. 52.
+
+    _ CHAP. 53.
+
+    _ CHAP. 54.
+
+    _ CHAP. 55.
+
+    _ CHAP. 56.
+
+    _ CHAP. 57.
+
+    _ CHAP. 58.
+
+    _ CHAP. 59.
+
+    _ CHAP. 60.
+
+    _ CHAP. 61.
+
+    _ CHAP. 62.
+
+    _ CHAP. 63.
+
+    _ CHAP. 64.
+
+    _ CHAP. 65.
+
+    _ CHAP. 66.
+
+    _ CHAP. 67.
+
+    _ CHAP. 68.
+
+    _ CHAP. 69.
+
+    _ CHAP. 70.
+
+    _ CHAP. 71.
+
+    _ CHAP. 72.
+
+    _ CHAP. 73.
+
+    _ CHAP. 74.
+
+    _ CHAP. 75.
+
+    _ CHAP. 76.
+
+    _ CHAP. 77.
+
+    _ CHAP. 78.
+
+    _ CHAP. 79.
+
+1. The table of Cebes, the Theban Philosopher: Containing a prescript method for the well ordering of the life of man.
 
 **Types of content**
 
